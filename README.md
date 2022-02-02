@@ -1,0 +1,1 @@
+# fulltimecrypto.github.io
